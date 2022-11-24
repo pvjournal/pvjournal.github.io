@@ -1,4 +1,4 @@
-Growing up _bhadrolok_ targeted culture of WB with serious communist manifest all around, we were not taught the value of money. It was as if targeting money was blasphemous. I believe others will agree (or correct me) 
+Growing up _bhadrolok_ targeted culture of Bengal, we were not taught the value of money. It was as if targeting money was blasphemous. I believe others will agree (or correct me) 
 
 Not that no one was focussed on money, but it was not the defining factor for social eminence. 
 
