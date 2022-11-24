@@ -19,3 +19,6 @@ Most other industries can be classified as the search for elixirs.
 Coming back to commerce, the PoLPEST analysis surmises - let anyone invent or discover elixir, we can pay for it! So economic theory defines a value for everything. 
 
 Living in a capitalist world, hence, it is necessary to focus on money.
+
+
+Escrowed at https://web.archive.org/web/20221124044636/https://raw.githubusercontent.com/pvjournal/pvjournal.github.io/journal/PoLPEST.md
