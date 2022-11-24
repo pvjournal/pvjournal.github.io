@@ -3,3 +3,5 @@ An abandoned AyeAI project - Apothe _Curry_ was around automating prediction of 
 The synthesis side had an auto dispenser of recipe related masalas (guess we didn't respond to patent FRE in time) 
 
 (Caveat to public disclosure : _ApotheCurry_ is claimed as a trademark by AyeAI Consulting)
+
+Escrowal https://web.archive.org/web/20221124184441/https://raw.githubusercontent.com/pvjournal/pvjournal.github.io/journal/ApotheCurry.md
